@@ -1,1 +1,1 @@
-Only prodota.ru users.
+Only for prodota.ru users.
